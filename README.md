@@ -1,0 +1,1 @@
+# TEMA-Trend-Momentum
